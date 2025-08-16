@@ -1,1 +1,0 @@
-# Research-work-of-Computational-material-physics-and-solid-state-physics-
